@@ -6,7 +6,7 @@
 <p align="center" >
 ${\textsf{\color{#3E7B8F}74j}}$ / Nick ᛝ I only follow mutuals
 <p align="center" >
-C+H freely 𓎠𓎡  ${\textsf{\color{#FBA5D8}W2I}}$ 
+C+H freely 𓎠𓎡 W2I 
 <p align="center" >
 I do NOT give permission to use inspo or steal my skins
 <p align="center" >
