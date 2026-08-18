@@ -10,9 +10,9 @@ C+H freely 𓎠𓎡 W2I 
 <p align="center" >
 I do NOT give permission to use inspo or steal my skins
 <p align="center" >
-𓊆 ${\textsf{\color{#FBA5D8}report}}$ these type of people 𓊇 
+𓊆 If you see anyone do this ${\textsf{\color{#FBA5D8}report}}$ them 𓊇 
 <p align="center" >
-They post for example on ${\textsf{\color{#FBA5D8}Pinterest}}$
+They post on ${\textsf{\color{#FBA5D8}Pinterest}}$ for example
 <p align="center" > 
 <img width="540" height="132" alt="image" src="https://files.catbox.moe/g69i0p.webp" />
 <p align="center" > 
